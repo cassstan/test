@@ -1,2 +1,2 @@
 
-![Без имени-1-восстановлено](https://user-images.githubusercontent.com/106263950/170306817-5b88223d-4f74-40d2-8514-159e549d02f2.png)
+![lm at logo](https://user-images.githubusercontent.com/106263950/170313890-9e8712fe-b484-4193-9b4a-1555c48eed65.png)
